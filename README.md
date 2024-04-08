@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lauraRodriguezSedeno
+- 👀 I’m interested in Teacher topics
+- 🌱 I’m currently learning about IT in my work
